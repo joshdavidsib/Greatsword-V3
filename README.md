@@ -1,4 +1,4 @@
-# **Greatsword V3**
+# **Greatsword V3***
 
 [Demo Link](https://jhgfkhgyg.onrender.com/) (Not working anymore because I got banned)
 
